@@ -8,7 +8,7 @@ I'm a passionate Electronics and Communication Engineering (ECE) student from JN
 
 - *B.Tech in ECE*  
   JNTUH AVIH | 2021 - 2025  
-  Current Aggregate: *58%* (till 4-2)
+  Current Aggregate: *58%* (till 4-1)
 
 - *Intermediate (MPC)*  
   Shivani Junior College | TSBIE | 2021  
@@ -47,7 +47,7 @@ I'm a passionate Electronics and Communication Engineering (ECE) student from JN
 
 ## 📫 Contact Me
 
-- *Email:* [abhilashbiyyaka444@gmail.com](mailto:abhilashbiyyala444@gmail.com)  
+- *Email:* [abhilashbiyyala444@gmail.com](mailto:abhilashbiyyala444@gmail.com)  
 - *Mobile:* +91 8885195444  
 
 ---
