@@ -47,7 +47,7 @@ I'm a passionate Electronics and Communication Engineering (ECE) student from JN
 
 ## 📫 Contact Me
 
-- *Email:* [abhilashbiyyaka444@gmail.com](mailto:abhilashbiyyaka444@gmail.com)  
+- *Email:* [abhilashbiyyaka444@gmail.com](mailto:abhilashbiyyala444@gmail.com)  
 - *Mobile:* +91 8885195444  
 
 ---
